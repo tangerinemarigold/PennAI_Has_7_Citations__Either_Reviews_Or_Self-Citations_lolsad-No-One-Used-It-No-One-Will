@@ -14,3 +14,7 @@
 
 # Generally publishes in hype-cycles of trends in AI/ML/CS due to lack of training in these fields
 * [inconsistent claim of Master's degree in Applied Statistics, of course it's deliberate](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-04-19%20at%207.48.00%20AM.png)
+
+# has absolutely been o-b-s-e-s-s-e-d with Feb 23 and April 23 since 2017; and every year since then
+* [bizarre and absolutely insane](https://github.com/tangerinemarigold/these-must-have-been-important-days-for-grifting/commit/68997d9085559dd84ac5766850579b39fa074c02)
+
