@@ -21,3 +21,7 @@
 # from fraud to nutraloaf
 * [complete and utter self-destruction over my resignation](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-04-26%20at%203.29.20%20PM.png)
 * maybe jason can frivolously sue the prison when he's done serving for serving him that, i don't know, i don't care at all
+
+# should have stuck to teaching his PhD students how to pipette and pellet cells ... because that's what he's trained in, what a cult, what a mess
+* [hey siri, read out loud that wikipedia article on AI](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-04-26%20at%205.46.26%20PM.png)
+
