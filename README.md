@@ -18,3 +18,6 @@
 # has absolutely been o-b-s-e-s-s-e-d with Feb 23 and April 23 since 2017; and every year since then
 * [bizarre and absolutely insane](https://github.com/tangerinemarigold/these-must-have-been-important-days-for-grifting/commit/68997d9085559dd84ac5766850579b39fa074c02)
 
+# from fraud to nutraloaf
+* [complete and utter self-destruction over my resignation](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-04-26%20at%203.29.20%20PM.png)
+* maybe jason can frivolously sue the prison when he's done serving for serving him that, i don't know, i don't care at all
