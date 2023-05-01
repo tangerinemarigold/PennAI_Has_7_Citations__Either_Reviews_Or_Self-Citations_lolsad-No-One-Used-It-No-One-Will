@@ -27,3 +27,4 @@
 
 # Jason will be repeating the events of 2015-2023 in his mind over and over again for the rest of his life
 * [i and we are already living our happily ever after, im not even going to remember anything related to Penn/IBI after the legal work is over, i wont care to, only Jason will for the rest of his life](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-05-01%20at%202.39.13%20PM.png)
+* [many more dates in the future to celebrate, no real losses on our side honestly, just some time wasted, only a little bit compared to decades ahead, and thats recoverable too](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-05-01%20at%203.29.14%20PM.png)
