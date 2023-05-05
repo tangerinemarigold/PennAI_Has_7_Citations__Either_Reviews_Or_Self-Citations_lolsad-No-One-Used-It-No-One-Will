@@ -32,3 +32,6 @@
 
 # the fact that you can do this sort of stuff in life is just amazing, even just thinking about it is amazing in it of itself
 * [or even just writing about it](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screen%20Shot%202023-05-03%20at%202.43.12%20PM.png)
+
+# Jason will get sued by so many people and entities
+* [i would think even people in his own cult for damaging their reputation](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screenshot%202023-05-05%20at%2010.09.28%20AM.png)
