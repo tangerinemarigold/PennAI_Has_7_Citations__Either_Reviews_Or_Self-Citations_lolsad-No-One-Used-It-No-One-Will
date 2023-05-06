@@ -35,3 +35,6 @@
 
 # Jason will get sued by so many people and entities
 * [i would think even people in his own cult for damaging their reputation](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screenshot%202023-05-05%20at%2010.09.28%20AM.png)
+
+# Who would ever choose an offer from Penn Medicine over another school to be a student at or to be an employee at ... why would anyone want to waste their talent at this school
+* [utter disgrace](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screenshot%202023-05-06%20at%2012.04.30%20PM.png)
