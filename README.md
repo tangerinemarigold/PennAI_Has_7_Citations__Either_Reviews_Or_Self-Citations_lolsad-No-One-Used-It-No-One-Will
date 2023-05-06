@@ -38,3 +38,4 @@
 
 # Who would ever choose an offer from Penn Medicine over another school to be a student at or to be an employee at ... why would anyone want to waste their talent at this school
 * [utter disgrace](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screenshot%202023-05-06%20at%2012.04.30%20PM.png)
+* [abuse of power and abuse of use of Penn email/campus technology](https://github.com/tangerinemarigold/Hey_Jason_Moore____ThisIsJustTheBeginningOfYourSelf-InflictedDownfall_DontBlameMeOrOthersEver/blob/main/Screenshot%202023-05-06%20at%202.58.23%20PM.png)
